@@ -36,7 +36,7 @@ If we update this privacy policy, we will post the new policy here and update th
 
 If you have questions about this privacy policy, please contact us at:
 
-**Email:** gunwithish17@gmail.com
+**Email:** business@gunisharma.com
 **App Name:** Odoro
 
 ---
